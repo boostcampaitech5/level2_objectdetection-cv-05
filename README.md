@@ -2,7 +2,7 @@
 
 네이버 부스트캠프 AItech 5기 CV lv2,3 5조 프로젝트 공간입니다.
 
-<a href="https://ibb.co/GRF6vbW"><img src="https://i.ibb.co/tD3GMWq/2.png" alt="2" border="0"></a><br /><a target='_blank' href='https://statewideinventory.org/lexus-0-60-times'></a><br />
+<img src="https://i.ibb.co/tD3GMWq/2.png"><br /><br />
 
 
 
